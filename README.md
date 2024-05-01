@@ -37,7 +37,7 @@
 ## Контакты:
 [Вадим Пяточкин](https://vk.com/vadimus_sp)
 
-[Сергей Агафонов](https://vk.com/id460689293) 
+Сергей Агафонов
 
 [Авагимян Нвер](https://vk.com/artsakhskii)
 
